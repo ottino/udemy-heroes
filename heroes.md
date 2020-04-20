@@ -6,4 +6,6 @@
 * Mujer Maravilla
 * Linterna Verde
 * Robin
-* Volcán Negro
+* Maxi
+Jose
+
